@@ -1,4 +1,6 @@
+# Chapter 6
 
+## From Birth to Prophethood
 
 At the tender age of 6, Rasulullah ﷺ's mother Aminah passed away. Two years later, Abdul Muttalib, his grandfather, passed away. Thus, at the age of 8, he was under the care of his uncle Abu Talib. When he was 9 years old, he went with Abu Talib on a caravan trip to Busra in Syria. In Syria, Abu Talib and Rasulullah ﷺ met a monk by the name of Bahira. Bahira welcomed their caravan. When he saw Rasulullah ﷺ, he told Abu Talib to take him ﷺ back and hide him from the Jews, and advised that he will become a man of great stature. Abu Talib heeded this advice.  
 This incident has been used by some arguments that claim the Islam is merely a made religion based on Christianity. The argument goes that in this meeting with Basira, Basira taught monotheism and instigated the foundation of Islam. Some arguments go even further and claim that all of the Quran was relayed in this moment. These notions are impossible for several reasons:
@@ -16,4 +18,15 @@ As Rasulullah ﷺ got older, he became a beacon of righteousness and torchbearer
 When Rasulullah ﷺ was 25, he married Khadijahؓ, a wealthy merchant and businesswoman. She was a woman of integrity and honor. Together, they had 6 children.
 
 His gifted poise and sound mind as well as the positive impression he had on his people in his youth are manifest in how he solved the conundrum of placing _Hajr al-Aswad_ into the Ka'bah during its reconstruction. This was a matter that caused so much strife amongst the Arabs that Banu Abd ad-Dar and Banu Adi bloodied their hands in anticipation of battle. This is because to the Arabs little or nothing mattered more than honor, and the honor of placing the black stone was worth breaking ties and killing one another for them. Rasulullah ﷺ solved the situation by using a cloth, which each tribe grabbed a part of. They lifted the stone to its place, being set in position with the hands of Rasulullah ﷺ. From this event, we see how Rasulullah ﷺ's remarkable kindness and cool-headedness could resolve times where people were literally in arms against each other.
+
+### The establishment of trade regulations in Makkah
+
+Zabidi the merchant came to Makkah for trade, but much of his mechandise was seized by Al-'As ibn Wa'il, one of the chieftans of Quraysh, without recompense. Zabidi appealed to all the rich, young, and powerful in Quraysh, but none dared to challenge ibn Wa'il. They hung their heads in shame and met together in the house of Abdullah ibn Jud'an to form a pact of justice (_hilf al-fudul_) for the merchants and the oppressed, lest another man is wronged like Zabidi. Rasulullah ﷺ played a part in forming this pact and was present in the meeting. Even after Islam was revealed, he still agreed with the justice of the pact.
+
+### Approching his 40th year
+
+As Rasulullah ﷺ aged closer to 40, he started to feel spiritually restless.
+
+Even at his age, he had still never learnt to read or write, and was thus unlettered.
+
 
