@@ -22,7 +22,7 @@ At the time of Rasulullah ﷺ, Banu an-Nadir and Qurayzah hated Banu Qaynuqa bec
 #### Religious affairs of the Jews
 
 The Jews passed down knowledge in seminaries called _midra_, where they taught religious and secular sciences. They prayed in synagogues. They followed the Pentateuch, but also followed the customs their rabbis would include in their religion. While they continued their tradition of religion in some form, they were not truly practicing, as besides the fundamental tenets of their relegion they were otherwise indistinguishable from their polytheist neighbors. For example, they spent their time in magic and soothsaying.  
-Their most egregious shortcoming, however, was ignoring the message sent to them by Rasullulah ﷺ, in spite of the evident proof that he was the very man they were waiting for to be their prophet. They would even mock him, calling him رعنا since they were not listening to him.
+Their most egregious shortcoming, however, was ignoring the message sent to them by Rasullulah ﷺ, in spite of the evident proof that he was the very man they were waiting for to be their prophet. They would even mock him, calling him رعنا since they were ignoring him.
 
 > **رعن** _Prophet of Mercy_ to be ignorant & dumb. _Hans Wehr_ to be lightheaded, frivolous.
 
