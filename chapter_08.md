@@ -36,5 +36,38 @@ The Jews were often creditors, lending money or property. When recompense was ne
 
 #### Religious and cultural conditions
 
+In the beginning of this chapter, there is a quote from Dr. Israel Wellphenson that highlights how the Jews kept their religion to themselves and would not invite others to their religion. Perhaps an interesting aspect to this is again the pride of the Jews and the religious superiority they claimed to have over others. This is also reflected in their language and culture. For the former, they spoke a mix of Arabic and Hebrew, maintaining Hebrew for transmission of knowledge. Socially, they were constantly fighting against the Khazraj and Aws tribes and maintained exclusivity. However, their 6 centuries of neighboring Banu Khazraj and Aws meant that these tribes were acutely aware of Judaism, and some even became Jew through marriage or through a custom of leaving a child with the Jews if one dies in infancy. 
 
+### The Aws and the Khazraj
+
+| ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Jemen1988-022_hg.jpg/1920px-Jemen1988-022_hg.jpg) |
+|:--:|
+| ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4ACW9zCBtz-y4MYZhE84nmw1PdnxhymmL3Q&usqp=CAU) |
+|:--:|
+| <b>Marib dam in Yemen</b>|
+
+These tribes are originally from Yemen. In about 145 BC, the dam of Marib was severely breached by the people of Saba, as mentioned in the Quran:
+
+![saba15](https://user-images.githubusercontent.com/90349598/135143578-930e5837-95c2-481b-8740-2a0342ae3f16.PNG)
+
+![Saba16](https://user-images.githubusercontent.com/90349598/135143609-31bf504c-4425-454e-9df5-32d0ea2695be.PNG)
+
+![Saba17](https://user-images.githubusercontent.com/90349598/135143628-121da12d-2d44-4d29-a891-f303558dd3eb.PNG)
+
+There was also political unrest in Yemen. The Aws and Khazraj descend from the tribe of Azd, who migrated in waves to Madinah and other nothern areas (there were multiple times of unrest and the dam being broken in Yemen over the centuries, from 145 BCE until at least 6th century CE, until the advent of Islam and eventual conquer of Yemen).
+
+The Aws settled in the southeast of Madinah, while the Khazraj were north and central. The Aws were closer to fertile ground, as south of Madinah held forests and date trees, while Khazraj were in less fertile land.
+
+Banu Khazraj consisted of four clans:
+
+- Malik
+- Adi
+- Mazin
+- Dinar
+
+Both the Aws and Khazraj had sizeable power, but it is uncertain exactly how many were in. At the time of the proohet ﷺ, the Arabs had the upper hand after a series of battles between the resident tribes in Madinah, the most recent of which was only 5 years before Hijrah. 
+
+### Physical and geographical conditions
+
+As seen in the earlier image, at the time of Rasulullah ﷺ there was clear separation between tribes spatially. 
 
