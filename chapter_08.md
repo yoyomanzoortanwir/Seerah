@@ -67,7 +67,21 @@ Banu Khazraj consisted of four clans:
 
 Both the Aws and Khazraj had sizeable power, but it is uncertain exactly how many were in. At the time of the proohet ﷺ, the Arabs had the upper hand after a series of battles between the resident tribes in Madinah, the most recent of which was only 5 years before Hijrah. 
 
+The enmity between the Aws, Khazraj, and the Jews is seen in the incident with Sha'th ibn Qays, one of the Jews. He passed by some Aws and Khazraj together in harmony, and in spite recited poems of the past to inflame them. The Aws and Khazraj indeed became inflamed and began bickering until Rasulullah ﷺ came and settled their hearts. Such were the passions they had in the past.
+
 ### Physical and geographical conditions
 
-As seen in the earlier image, at the time of Rasulullah ﷺ there was clear separation between tribes spatially. 
+As seen in the earlier image, at the time of Rasulullah ﷺ there was clear separation between tribes spatially. Each contained lands for growing and livestock, lands for living, and land for protection (fortresses), since such was the type of society they were in. The Jews in particular had 95 such fortresses. What a strange society, each tribe at each others throats, living in proximity for centuries, built in such a way that they relied on each other for survival as much as they needed to protect themselves from one another. In the Quran, this is referenced:
+
+| ![Hashr14](https://user-images.githubusercontent.com/90349598/135147854-7c0350ee-c54d-453e-bd1e-8c01a1caa4c8.PNG) |
+|:--:|
+| <b>Surah Hashr ayah 14</b>|
+
+Located on the east was Harrat al Waqim
+
+| ![Harrat al Waqim](https://elmeezan.com/wp-content/uploads/%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%AD%D8%B1%D8%A9-%D8%A8%D9%86%D9%8A-%D9%82%D8%B1%D9%8A%D8%B8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D9%88%D8%B1%D8%A9.png) |
+|:--:|
+| <b>حرة واقم</b>|
+
+
 
