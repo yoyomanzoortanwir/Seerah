@@ -77,11 +77,16 @@ As seen in the earlier image, at the time of Rasulullah ﷺ there was clear sepa
 |:--:|
 | <b>Surah Hashr ayah 14</b>|
 
-Located on the east was Harrat al Waqim
+Physically, Madinah has several plains formed through lava. Notably, on the east is Harrat al Waqim and on the west is Harrat al-Wabarah. These plains of igneous, dangerous rocks prevent attack from the sides of Madinah. Coupled with the foresty land on the south, and Madinah was practically a physical stronghold.
 
 | ![Harrat al Waqim](https://elmeezan.com/wp-content/uploads/%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%AD%D8%B1%D8%A9-%D8%A8%D9%86%D9%8A-%D9%82%D8%B1%D9%8A%D8%B8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D9%88%D8%B1%D8%A9.png) |
 |:--:|
 | <b>حرة واقم</b>|
+
+| ![Harrat al Wabarah](https://media.springernature.com/lw785/springer-static/image/chp%3A10.1007%2F978-3-319-33015-0_3/MediaObjects/319516_1_En_3_Fig19_HTML.gif) |
+|:--:|
+| <b>حرة واقم</b>|
+
 
 
 
