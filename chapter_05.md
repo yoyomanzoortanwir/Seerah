@@ -18,4 +18,20 @@ The Makkans were also smart about their business. They targeted specific markets
 
 #### Currency
 
-> **Dirham** 
+Both the _dinar_ and _dirham_ were coins valued by weight. In other words, these were coins of inherent value, in gold or silver, that were traded as currency. There was not a 'gold standard' for paper money, items were either traded via bartering (goods for goods) or for some amount of gold or silver in the form of coins.
+
+> **Dirham** silver coins of two types<br>بغلية، صردة دامية the Iranian coins<br>تبرية، بيزنتية the Byzantinian coins
+
+> **Dinar** gold coins
+
+|            | by value             | by weight (of silver or gold) |
+|------------|----------------------|-------------------------------|
+| 1 _dinar_  | 72 grains of barley  | 1 mithqal                     |
+| 1 _dirham_ | 7.2 grains of barley | 10/7 mithqal                  |
+
+By value, 1 dinar = 10 dirhams.  
+By weight, 1 mithqal = 1 dinar = 0.7 dirham
+
+The scales used by the Arabs were:
+
+_su_ < _mudd_ < _ritl_ < _uqiyah_ < _mithqal_
