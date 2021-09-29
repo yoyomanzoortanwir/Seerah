@@ -10,7 +10,7 @@ The Jews had been in Yathrib since the first century CE. In 70 CE, when Jerusale
 
 These tribes were opposed to each other, however, as mentioned in the Quran:
 
-![2 84](https://user-images.githubusercontent.com/90349598/135095597-ff9173ad-c0da-4004-b39f-e168d9141a50.png)
+ <img src="https://user-images.githubusercontent.com/90349598/135095597-ff9173ad-c0da-4004-b39f-e168d9141a50.png" alt="Surah Baqara" width="75%"> 
 
 At the time of Rasulullah ﷺ, Banu an-Nadir and Qurayzah hated Banu Qaynuqa because they sided with Banu Khazraj in the battle of Bu'ath in 617 AD. Thus, while the Jews lived separate from the rest of the Arabs in Yathrib, Banu an-Nadir and Banu Qurayzah forced Banu Qaynuqa to the outskirts of Madinah.
 
