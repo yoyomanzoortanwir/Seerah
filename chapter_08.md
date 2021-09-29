@@ -12,7 +12,7 @@ These tribes were opposed to each other, however, as mentioned in the Quran:
 
 ![2 84](https://user-images.githubusercontent.com/90349598/135095597-ff9173ad-c0da-4004-b39f-e168d9141a50.png)
 
-At the time of Rasulullah ﷺ, Banu an-Nadir and Qurayzah hated Banu Qaynuqa because they sided with Banu Khazraj in the battle of Bu'ath in 617 AD. Thus, while the Jews lived separate from the rest of the Arabs in Yathrib, Banu an-Nadir and Banu Qaynuqa forced Banu Qaynuqa to the outskirts of Madinah.
+At the time of Rasulullah ﷺ, Banu an-Nadir and Qurayzah hated Banu Qaynuqa because they sided with Banu Khazraj in the battle of Bu'ath in 617 AD. Thus, while the Jews lived separate from the rest of the Arabs in Yathrib, Banu an-Nadir and Banu Qurayzah forced Banu Qaynuqa to the outskirts of Madinah.
 
 <!--  ![](https://upload.wikimedia.org/wikipedia/commons/4/45/Battle_of_Trench_627_CE.png) -->
 | ![غزوة الخندق 2](https://user-images.githubusercontent.com/90349598/135097800-37e8dc83-0c83-4971-bf25-9659528fb184.gif) |
@@ -85,7 +85,7 @@ Physically, Madinah has several plains formed through lava. Notably, on the east
 
 | ![Harrat al Wabarah](https://media.springernature.com/lw785/springer-static/image/chp%3A10.1007%2F978-3-319-33015-0_3/MediaObjects/319516_1_En_3_Fig19_HTML.gif) |
 |:--:|
-| <b>حرة واقم</b>|
+| <b>حرة الوبرة</b>|
 
 
 
