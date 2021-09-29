@@ -38,6 +38,24 @@ The Jews were often creditors, lending money or property. When recompense was ne
 
 In the beginning of this chapter, there is a quote from Dr. Israel Wellphenson that highlights how the Jews kept their religion to themselves and would not invite others to their religion. Perhaps an interesting aspect to this is again the pride of the Jews and the religious superiority they claimed to have over others. This is also reflected in their language and culture. For the former, they spoke a mix of Arabic and Hebrew, maintaining Hebrew for transmission of knowledge. Socially, they were constantly fighting against the Khazraj and Aws tribes and maintained exclusivity. However, their 6 centuries of neighboring Banu Khazraj and Aws meant that these tribes were acutely aware of Judaism, and some even became Jew through marriage or through a custom of leaving a child with the Jews if one dies in infancy. 
 
+### Physical and geographical conditions
+
+As seen in the earlier image, at the time of Rasulullah ﷺ there was clear separation between tribes spatially. Each contained lands for growing and livestock, lands for living, and land for protection (fortresses), since such was the type of society they were in. The Jews in particular had 95 such fortresses. What a strange society, each tribe at each others throats, living in proximity for centuries, built in such a way that they relied on each other for survival as much as they needed to protect themselves from one another. In the Quran, this is referenced:
+
+| ![Hashr14](https://user-images.githubusercontent.com/90349598/135147854-7c0350ee-c54d-453e-bd1e-8c01a1caa4c8.PNG) |
+|:--:|
+| <b>Surah Hashr ayah 14</b>|
+
+Physically, Madinah has several plains formed through lava. Notably, on the east is Harrat al Waqim and on the west is Harrat al-Wabarah. These plains of igneous, dangerous rocks prevent attack from the sides of Madinah. Coupled with the foresty land on the south, and Madinah was practically a physical stronghold.
+
+| ![Harrat al Waqim](https://elmeezan.com/wp-content/uploads/%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%AD%D8%B1%D8%A9-%D8%A8%D9%86%D9%8A-%D9%82%D8%B1%D9%8A%D8%B8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D9%88%D8%B1%D8%A9.png) |
+|:--:|
+| <b>حرة واقم</b>|
+
+| ![Harrat al Wabarah](https://media.springernature.com/lw785/springer-static/image/chp%3A10.1007%2F978-3-319-33015-0_3/MediaObjects/319516_1_En_3_Fig19_HTML.gif) |
+|:--:|
+| <b>حرة الوبرة</b>|
+
 ### The Aws and the Khazraj
 
 | ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Jemen1988-022_hg.jpg/1920px-Jemen1988-022_hg.jpg) |
@@ -69,24 +87,9 @@ Both the Aws and Khazraj had sizeable power, but it is uncertain exactly how man
 
 The enmity between the Aws, Khazraj, and the Jews is seen in the incident with Sha'th ibn Qays, one of the Jews. He passed by some Aws and Khazraj together in harmony, and in spite recited poems of the past to inflame them. The Aws and Khazraj indeed became inflamed and began bickering until Rasulullah ﷺ came and settled their hearts. Such were the passions they had in the past.
 
-### Physical and geographical conditions
+#### Religious and social conditions
 
-As seen in the earlier image, at the time of Rasulullah ﷺ there was clear separation between tribes spatially. Each contained lands for growing and livestock, lands for living, and land for protection (fortresses), since such was the type of society they were in. The Jews in particular had 95 such fortresses. What a strange society, each tribe at each others throats, living in proximity for centuries, built in such a way that they relied on each other for survival as much as they needed to protect themselves from one another. In the Quran, this is referenced:
-
-| ![Hashr14](https://user-images.githubusercontent.com/90349598/135147854-7c0350ee-c54d-453e-bd1e-8c01a1caa4c8.PNG) |
-|:--:|
-| <b>Surah Hashr ayah 14</b>|
-
-Physically, Madinah has several plains formed through lava. Notably, on the east is Harrat al Waqim and on the west is Harrat al-Wabarah. These plains of igneous, dangerous rocks prevent attack from the sides of Madinah. Coupled with the foresty land on the south, and Madinah was practically a physical stronghold.
-
-| ![Harrat al Waqim](https://elmeezan.com/wp-content/uploads/%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%AD%D8%B1%D8%A9-%D8%A8%D9%86%D9%8A-%D9%82%D8%B1%D9%8A%D8%B8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D9%88%D8%B1%D8%A9.png) |
-|:--:|
-| <b>حرة واقم</b>|
-
-| ![Harrat al Wabarah](https://media.springernature.com/lw785/springer-static/image/chp%3A10.1007%2F978-3-319-33015-0_3/MediaObjects/319516_1_En_3_Fig19_HTML.gif) |
-|:--:|
-| <b>حرة الوبرة</b>|
-
+The pagans of Madinah respected the Quraysh as the caretakers of the Ka'bah. 
 
 
 
