@@ -21,7 +21,7 @@ At the time of Rasulullah ﷺ, Banu an-Nadir and Qurayzah hated Banu Qaynuqa bec
 
 #### Religious affairs of the Jews
 
-The Jews passed down knowledge in seminaries called _midra_, where they taught religious and secular sciences. They prayed in synagogues. They followed the Pentateuch, but also followed the customs their rabbis would include in their religion. While they continued their tradition of religion in some form, they were not truly practicing, as besides the fundamental tenets of their relegion they were otherwise indistinguishable from their polytheist neighbors. For example, they spent their time in magic and soothsaying.  
+The Jews passed down knowledge in seminaries called _midra_, where they taught religious and secular sciences. They prayed in synagogues. They followed the Pentateuch, but also followed the customs their rabbis would include in their religion. While they continued their tradition of religion in some form, they were not truly practicing, as besides the fundamental tenets of their religion they were otherwise indistinguishable from their polytheist neighbors. For example, they spent their time in magic and soothsaying.  
 Their most egregious shortcoming, however, was ignoring the message sent to them by Rasullulah ﷺ, in spite of the evident proof that he was the very man they were waiting for to be their prophet. They would even mock him, calling him رعنا since they were ignoring him.
 
 > **رعن** _Prophet of Mercy_ to be ignorant & dumb. _Hans Wehr_ to be lightheaded, frivolous.
@@ -83,13 +83,33 @@ Banu Khazraj consisted of four clans:
 - Mazin
 - Dinar
 
-Both the Aws and Khazraj had sizeable power, but it is uncertain exactly how many were in. At the time of the proohet ﷺ, the Arabs had the upper hand after a series of battles between the resident tribes in Madinah, the most recent of which was only 5 years before Hijrah. 
+Both the Aws and Khazraj had sizeable power, but it is uncertain exactly how many were in. At the time of the prophet ﷺ, the Arabs had the upper hand after a series of battles between the resident tribes in Madinah, the most recent of which was only 5 years before Hijrah. 
 
 The enmity between the Aws, Khazraj, and the Jews is seen in the incident with Sha'th ibn Qays, one of the Jews. He passed by some Aws and Khazraj together in harmony, and in spite recited poems of the past to inflame them. The Aws and Khazraj indeed became inflamed and began bickering until Rasulullah ﷺ came and settled their hearts. Such were the passions they had in the past.
 
 #### Religious and social conditions
 
-The pagans of Madinah respected the Quraysh as the caretakers of the Ka'bah. 
+![MadinahMakkahTaif](https://user-images.githubusercontent.com/90349598/135369175-d3e75633-7a4f-4678-8122-348a0b97d7da.PNG)
 
+In terms of religion, the pagans of Madinah shared a lot with the rest of Hijaz. They respected the Quraysh as the caretakers of the Ka'bah. They followed the same idols as those in Makkah, with the exception of some tribe-specific or personal idols (a society where everyone could have their own gods smh). Their favorite god was Manat, one of the oldest gods they worshiped. The idol was placed between Makkah and Madinah along the Red Sea. In Makkah, they preferred to pray to Al-'Uzza, and Taif preffered Al-Lat. These national gods were the ones the people in the city would pray to, and if they brought home an idol they would consider the idol to be the patron idol.  
+Narrated by Ahmed bin Hanbal relates from 'Urwah from Aisha that the Ansar used to cry _labbayk_ to Manat in their _jahiliyyah_. They used to consider it unlawful to cross Safa and Marwah in their pilgrimage to Manat, so they felt hesistant and told Rasulullah ﷺ, and the ayah was revealed:
+
+![2 158](https://user-images.githubusercontent.com/90349598/135371034-54f1b3c3-a1e4-4f61-8df5-d5c4602ea109.PNG)
+
+While Madinans shared polytheistic beliefs with the Makkans, they were not a place for pilgrimage nor did they contain the same extreme number of idols. They simple followed the Makkans in tradition. Similarly, they had two days of celebration which they may have adopted from the Persians, and these were replaced with the days of Eid by Rasulullah ﷺ. 
+
+##### Noble lineage
+
+The Aws and Khazraj were geneologically _Arab Arabiyyah_, they come from Banu Qahtan from Yemen. In comparison, the Quraysh were descended from Adnan and are the progeny of Ismail (AS). They are _Arab Musta'ribah_, or arabized Arabs, since their history traces from outside Arabia. While Qahtanis and Adnanis historically had been at odds with each other, the Quraysh held the Qahtanis in Madinah with some regard because Hashim ibn Abd Manaf, the progenitor of Banu Hashim and great grandfather of Rasulullah ﷺ, was married to Salma bint Amr an-Najjar, who was from Banu Khazraj. However, the Quraysh still considered themselves of nobler blood than the Madinans, which can be seen in an incident during the battle of Badr. During battle, the Arabs would engage in مبرزون, where individuals would challenge individuals in a bout for honor and respect. When three children of Rabi'ah stepped forward to challenge the Muslims, some ansar came to meet them. Because of their background, the kuffar exclaimed, "we have nothing to do with you." Then Rasulullah ﷺ told Ubaydah ibn al-Harith, Hamzah and Ali to meet the challenge, and the challenge was accepted.
+
+#### Economic cultural conditions
+
+The primary economic pursuit of Madinah was farming because of its fertile soil. Dates were the staple food of the region, and the centuries of refining skills in farming lent itself to a gradient in qualities based on farming method for the dates. They would even cultivate trees through [manual fertilization via a ta'bir](http://lexicon.quranic-research.net/pdf/Page_2668.pdf). While agriculture was a thriving market in Madinah, without the economic advantage Makkah has with consistent pilgrims it was not on the same scale as Makkah. The soil was fertile through a combination of nearby elevation of mountains allowing water to collect in the valleys below, as well as the igneous rock full of recycled minerals from deeper earth form whence it came. A combination of wells and the fertile soil led to lush gardens throughout the city. Given their agricultural background, a lot of their trade and transactions was not through coin, but through barter and material trade.  
+
+Beside agriculture, the Jews were involved in trades they had brought from over 6 centuries earlier that they kept to themselves, such as goldsmithing.
+
+### Yathrib's advanced and composite society
+
+In comparing Makkah and Madinah, we better come to understand the context and challenges for the emigration of the Muslims. Population-wise, Madinah was a smaller town. Their society, however, was extremely complex. Unlike the Makkans, who had essentially authoritarian rule by the strong that subdued the weak, Madinah had a variety of power complexes and social interactions and influences within the confines of the mountains surrounding it. 
 
 
